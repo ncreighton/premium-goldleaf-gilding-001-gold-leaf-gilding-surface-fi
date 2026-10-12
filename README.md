@@ -1,0 +1,2 @@
+# premium-goldleaf-gilding-001-gold-leaf-gilding-surface-fi
+Tired of your gold leaf projects looking amateurish because you skip the crucial finishing steps? Most gilding tutorials leave you with flaking, uneven surfaces, but the Gold Leaf Gilding &amp; Surface Finishing Studio gives you the complete workflow from preparation to museum-quality sealing.  This studio solves the pain of poor adhesion and lack of d
